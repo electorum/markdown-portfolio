@@ -4,7 +4,6 @@
 * Wings Over
 * DP Dough
 * Chicken and Waffle
-  * Only past 2 am on weekends tho
 * Chuy's
 * Zombie Dogz
 * Napales
